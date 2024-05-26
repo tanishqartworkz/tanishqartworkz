@@ -1,5 +1,5 @@
 - 👋 Hi, I’m tanishqartworkz
-- 👀 I’m interested in Coding & drawing
+- 👀 I’m interested in Coding
 - 🌱 I’m currently learning Coding
 
 Thank you!
